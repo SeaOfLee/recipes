@@ -51,3 +51,5 @@ A classic Korean comfort food. Great to make with old, leftover kimchi.
 9. Turn off heat. Top with green part of green onions. Serve over rice.
 
 ##### Notes  
+
+Made with 6 collard greens, trimmed and chopped into small pieces. Added to pot with mushrooms. Very good!
