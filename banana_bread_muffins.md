@@ -6,7 +6,7 @@
 **Serving Size:** 6-8 people
 
 #### About
-Simple banana bread muffins, easy to add chopped nuts, chocolate or any other tasty items. Xander gave it a squishy smile/clap/high five after trying them, so the recipe is named after him. 
+Simple banana bread muffins, easy to add chopped nuts, chocolate or any other tasty items. Xander gave it a squishy smile/clap/high five after trying them, so the recipe is named after him.
 
 **Recipe Source:**  [Banana Bread](https://goo.gl/imYMQk)
 
@@ -33,6 +33,6 @@ Simple banana bread muffins, easy to add chopped nuts, chocolate or any other ta
 3. Add vanilla extract, eggs, and mashed bananas to butter & sugar mixture, stir until well combined.
 4. Stir banana mixture into flour mixture, stir just to moisten. Add chocolate chips & stir to distribute chocolate pieces.
 5. Using a size 50 cookie scoop (1.28 tbsp per scoop), put 2 scoops of dough in each muffin tin, approximately 2.5 tbsp per tin.
-6. Bake for 25-30 minutes, until tops are golden brown and muffin springs back when pressed. Allow to cool 10 minutes before eating.
+6. Bake for 25-30 minutes, until tops are golden brown and muffin springs back when pressed. Allow to cool 10 minutes before eating!
 
 ##### Notes  
