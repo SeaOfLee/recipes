@@ -20,7 +20,7 @@ Simple banana bread muffins, easy to add chopped nuts, chocolate or any other ta
 | 2 cups AP Flour |  |
 | 2 1/3 cups bananas (approx 3 whole) | mashed, overripe best  |
 | 2 eggs | beaten  |
-| 3/4 cup brown sugar | |
+| 2/3 cup brown sugar | |
 | 1/2 cup (1 stick) unsalted butter | softened |
 | 1/2 cup chocolate chips | or nuts, etc. |
 | 1 tsp baking soda |  |
@@ -33,6 +33,6 @@ Simple banana bread muffins, easy to add chopped nuts, chocolate or any other ta
 3. Add vanilla extract, eggs, and mashed bananas to butter & sugar mixture, stir until well combined.
 4. Stir banana mixture into flour mixture, stir just to moisten. Add chocolate chips & stir to distribute chocolate pieces.
 5. Using a size 50 cookie scoop (1.28 tbsp per scoop), put 2 scoops of dough in each muffin tin, approximately 2.5 tbsp per tin.
-6. Bake for 25-30 minutes, until tops are golden brown and muffin springs back when pressed. Allow to cool 10 minutes before eating!
+6. Bake for 25-30 minutes, until tops are golden brown and muffin springs back when pressed. Allow to cool 10 minutes before eating!  
 
 ##### Notes  
