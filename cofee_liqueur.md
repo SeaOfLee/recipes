@@ -17,9 +17,9 @@ A sweet coffee liqueur, like Kahlua but made with Vodka. I think this makes the 
 
 | Qty  | Notes|
 |---|---|
-| 4 cups sugar | white/cane/brown. Original recipe calls for 8 cups.  |
+| 4 cups sugar | white/cane/brown. Original recipe calls for 8 cups, which seems insane.  |
 | 2 cups instant coffee crystals | Original recipe calls for 1.5c |
-| 5 cups vodka | 90 or 100 proof  |
+| 5 cups vodka | 90 or 100 proof (Tito's, Smirnoff, etc. Nothing too fancy.)  |
 | 2 vanilla beans | sugar  |
 
 ### Directions
